@@ -15,4 +15,5 @@ Bonjour ma tete,bonjour mes yeux ,bonjour mes bras mais ce que je prefere partic
 Paul c'est mon enorme...
 ...troisième bras. C'est de famille. Je sais, vous vous demandez: "pourquoi il s'apelle Paul?".
 C'est simple: Pauline était déja pris par mon troisième anus.
-Bon, Pauline et Paul, je les aime bien mais ce que j'aurai toujours voulu avoir c'est:
+Bon, Pauline et Paul, je les aime bien mais ce que j'aurai toujours voulu avoir c'est: une magnifique Caroline ! Ah ! Caroline, celle qui me permet d'utiliser ma jumelle siamoise près de Paul. Elle n'a pas rencontré énormèment de personnes mais elle est toujours heureuse de discuter avec des gens. Je me rappelle de cette fois...
+
