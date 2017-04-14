@@ -11,5 +11,6 @@ La main dans le slip, je lance la machine a café.
 J'espere ne pas revoir mon durum d'il y a 3heures lors du "bonjour à mon dos"
 Ou même lorsque je dis bonjour à ma main
 J'aime dire bonjour au partie de mon corp
-Bonjour ...
+Bonjour ma tete,bonjour mes yeux ,bonjour mes bras mais ce que je prefere particuliement , c'est dire bonjour a Paul.
+Paul c'est mon enorme..
 
